@@ -1,0 +1,1 @@
+Até agora as aulas estão sendo ótimas! Os professores se mostram muito engajados e proficiente nos assuntos, e o matérial trazido são supimpas! Irei atualizar esse documento a medida das aulas do segundo modulo forem feitas
